@@ -1,2 +1,2 @@
 # Soft-skils
-Aqui apresento sobre minhas soft skils
+Aqui apresento sobre minhas competências e certificações 
