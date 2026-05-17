@@ -1,2 +1,2 @@
 # Soft-skils
-Aqui apresento sobre minhas competências e certificações 
+Tenho competências para trabalhar em equipe, liderança e relações sociais, e apresento mais das minhas capacidades no meu Currículo.
